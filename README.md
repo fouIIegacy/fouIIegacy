@@ -7,7 +7,7 @@ honorable mentions: youngmalesensitive, noira
 
 <br>
 
-<img src="https://i.postimg.cc/cH1d6Rxk/IMG-4351.jpg" width="300">
+
 
 Childe.
 <br>
