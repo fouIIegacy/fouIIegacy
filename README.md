@@ -3,7 +3,9 @@
 
 honorable mentions: youngmalesensitive, noira
 
-<img src="https://i.postimg.cc/fymDdvPs/IMG-9784.jpg" width="200">
+<img src="https://i.postimg.cc/fymDdvPs/IMG-9784.jpg" width="200">   
+
+<br>
 
 <img src="https://i.postimg.cc/cH1d6Rxk/IMG-4351.jpg" width="300">
 
