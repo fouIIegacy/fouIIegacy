@@ -1,12 +1,18 @@
 <div align="center">
 
-![Alt Tag](https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/c502ec8758ffa73e-55/s500x750/ac6bb36104b11fc110b65402c76bd7a943a9a2ee.gifv)
 
-`c + h freely` ﹒ i'm often sitting with my friends﹒ cud and hide behind me as you like :)    
-*whisper to int. if i don't respond it's likely because i'm offtab*  ![Alt Tag](https://64.media.tumblr.com/03baf7dc3ce784b37abad39a625fb7bb/9172b469927582b8-ce/s75x75_c1/a67a99a9d60c4731e48fa6c3cc661819aff87b18.gifv) i love you
+honorable mentions: youngmalesensitive, noira
 
+<img src="https://i.postimg.cc/fymDdvPs/IMG-9784.jpg" width="200">
 
-<img src="https://i.pinimg.com/1200x/f4/4b/1d/f44b1d2e915343b227ac6941115b4486.jpg" width="300">
+<img src="https://i.postimg.cc/cH1d6Rxk/IMG-4351.jpg" width="300">
 
-꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ 
+Childe. At the thought of him, my heart flutters.
+It is impossible to express in words how much I love him. I cry day and night from the realization that my feelings are doomed. I would give anything for him to be real, live and love me in return.
+Every time I look at his photo, goosebumps run through my skin. My love for him is boundless and will never fade. I write this, unable to hold back tears,  and I hope one day he will be mine... only mine...
+
+<img src="https://i.postimg.cc/fbr9vRVw/IMG-9770.jpg" width="300">
+
+afk on pt 24/7 im mostly active on dc
+
 </div>
