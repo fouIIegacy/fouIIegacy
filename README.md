@@ -26,3 +26,5 @@ afk on pt 24/7 im mostly active on dc
 <img src="https://64.media.tumblr.com/444e336c58f295647dc07fa173d0d60e/4160be3cc2b84620-e3/s500x750/153ecb75962a68b7182e293f1bb0ff901cddc006.gifv">
 
 </div>
+
+<img src="https://i.postimg.cc/J0KHzyw0/ezgif-com-optimize-1.gif">
