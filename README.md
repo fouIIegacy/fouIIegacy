@@ -1,33 +1,25 @@
-https://helpsme.straw.page/     <- read
 <div align="center">
-<img src="https://64.media.tumblr.com/0d41b51b6cc3027bbc56fa14899689c0/4160be3cc2b84620-14/s400x600/cd3c27dae81f576b37b9466b9fb46ba7bdd01cf0.gifv">
-  
-honorable mentions: youngmalesensitive, noira
+  <br>
+<img src="https://64.media.tumblr.com/444e336c58f295647dc07fa173d0d60e/4160be3cc2b84620-e3/s500x750/153ecb75962a68b7182e293f1bb0ff901cddc006.gifv">
 
-<img src="https://i.postimg.cc/fymDdvPs/IMG-9784.jpg" width="200">   
+<div align="center">
+<img src="https://64.media.tumblr.com/fa7a5dceabaa643dc768f6eb314f0e27/79b84f2af84c36d6-4e/s640x960/ca9ef05be2130b308a6e9d7a4554a65712bb1ac6.gifv">
+<br>
+
+<img src="https://i.postimg.cc/50ZtKVQm/image.jpg" width="500">   
 
 <br>
 
-<img src="https://i.postimg.cc/WbvP2c4M/image.webp" width="300">
-
+you guys dont like my feet pics thats fine
 <br>
 
+<img src="https://i.postimg.cc/CLx2rqYv/HSwo-Qrt-Xc-AE-k-Nl-1.webp" width="183">
 
-
-Childe.
+afk on pt 24/7 im mostly active on dc: .exrhathmica
 <br>
-At the thought of him, my heart flutters.
-It is impossible to express in words how much I love him. I cry day and night from the realization that my feelings are doomed. I would give anything for him to be real, live and love me in return.
-Every time I look at his photo, goosebumps run through my skin. My love for him is boundless and will never fade. I write this, unable to hold back tears,  and I hope one day he will be mine... only mine... /satire
-
-<img src="https://i.postimg.cc/fbr9vRVw/IMG-9770.jpg" width="300">
-
-afk on pt 24/7 im mostly active on dc
-
+much love :)
+<br>
 <img src="https://64.media.tumblr.com/444e336c58f295647dc07fa173d0d60e/4160be3cc2b84620-e3/s500x750/153ecb75962a68b7182e293f1bb0ff901cddc006.gifv">
 
 </div>
 
-<br>
-
-<img src="https://files.catbox.moe/vnz878.gif" width="100"> <- very nice thanks
